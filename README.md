@@ -8,4 +8,4 @@ Tribble Bounce candy 🍭🍭 🍬 that taste smell like Uzuesatheo
 
 ---
 
-Check out Phubers blog and subscribe PQN 81 YouTube channel please
+Check out Phubers blog and subscribe to PQN 81 YouTube channel please
